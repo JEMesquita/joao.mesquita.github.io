@@ -1,5 +1,3 @@
-# joao.mesquita.github.io
-
 # João Esmerino de Mesquita
 
 **Endereço:** Rua Novo Oriente, 139, Autran Nunes, Fortaleza/CE – Brasil  
