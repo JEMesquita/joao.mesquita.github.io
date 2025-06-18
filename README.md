@@ -1,6 +1,6 @@
 # João Esmerino de Mesquita
 
-**Endereço:** Rua Novo Oriente, 139, Henrique Jorge, Fortaleza/CE – Brasil  
+**Endereço:**
 📱 **Celular:** (85) 99661-3303 | **WhatsApp:** (85) 99661-3303  
 ✉️ **E-mail:** esmerinomesquita@gmail.com  
 **Github:** [joao.mesquita.github.io](https://joao.mesquita.github.io)
