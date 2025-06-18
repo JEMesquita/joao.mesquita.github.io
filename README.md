@@ -1,6 +1,6 @@
 # João Esmerino de Mesquita
 
-**Endereço:**
+**Endereço:**MOra em Fortaleza - Ceará
 📱 **Celular:** (85) 99661-3303 | **WhatsApp:** (85) 99661-3303  
 ✉️ **E-mail:** esmerinomesquita@gmail.com  
 **Github:** [joao.mesquita.github.io](https://joao.mesquita.github.io)
